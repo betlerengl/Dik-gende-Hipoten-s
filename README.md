@@ -1,1 +1,1 @@
-# Dik-gende-Hipoten-s
+# Dik-Üçgende-Hipotenüs
